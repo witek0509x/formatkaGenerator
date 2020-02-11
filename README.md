@@ -1,0 +1,1 @@
+Generator formatek dla AIESEC
